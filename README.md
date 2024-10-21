@@ -1,1 +1,1 @@
-compeny profile hinergi
+company profile hinergi
